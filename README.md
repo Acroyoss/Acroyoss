@@ -4,4 +4,3 @@
 - 💞️ I’m looking to get my place in the industry, learning everyday in my free time and improving my portfolio day by day so one day I can be part of a team full of amazing people
 - 📫 I can be easily found through linkedin linkedin.com/in/jose-lopez7722 or via email joselopezgr@gmail.com
 - 💼 Actively looking for a junior position or apprenticeship 
-- 
